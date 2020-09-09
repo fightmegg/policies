@@ -113,8 +113,8 @@ We may provide You with disclosures and alerts regarding the Privacy Policy or P
 If You have any questions about this Privacy Policy, please contact via our Contact Form or at:
 
 FightMe Limited  
-1 Northumberland Buildings  
-Bath, England  
-BA1 2JB
+27, 4 Lambarde Square  
+London, England  
+SE10 9GB
 
 **Sensitive Information**: Because email communications are not always secure, please do not include credit card or other sensitive Data (such as racial or ethnic origin, political opinions, religion, health, or the like) in Your emails to us.
